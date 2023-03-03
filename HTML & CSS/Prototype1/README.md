@@ -1,2 +1,0 @@
-# html-internship
-# html-internship
